@@ -3,3 +3,5 @@
 https://www.youtube.com/watch?v=thW-Ugy8cdM
 
 https://www.tiktok.com/@dannyserene/video/7551625372899511583 "thats the only life they have" exactly
+
+this is called ["fuck you money"](https://en.wiktionary.org/wiki/fuck_you_money) that i earned through my hard work, because fuck you, i dont know you
